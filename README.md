@@ -1,1 +1,1 @@
-# NuquiCheat
+DelateBase Etchial Hakicng 
